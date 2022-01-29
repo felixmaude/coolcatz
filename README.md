@@ -1,1 +1,2 @@
-
+# heidi thoughts
+### start reading
