@@ -18,7 +18,7 @@ but maybe not so happy for the cat. The burn created a limping Moses, a slow Mos
 by the painkillers he was taking. It has been a few weeks now and his foot is healing well. He is no longer lethargic. He is now Moses.  
 
 You may ask, "What does it mean to be a Moses"? To be a Moses means to live on the edge, to live wild, to live rent free. For instance, every 
-Sunday, Moses partakes in the _hardcore parcour_ on the stairs. He balances on the ledge of the stairs, weaving through the stair posts. On a 
+Sunday, Moses partakes in the _hardcore parkour_ on the stairs. He balances on the ledge of the stairs, weaving through the stair posts. On a 
 normal day, being a Moses includes short, bursted _meows_ while climbing up the castle, some feisty repetitive kicks to your foot, or a game 
 of hide and seek (I have won a few games). Finally, to be a Moses everyday is to feed yourself, clean yourself, and do your bitness. All done 
 in a timely manner.
