@@ -1,2 +1,1 @@
-
-[start reading](ruler.md) 🐈‍⬛
+### **start reading** [:black_cat:](ruler.md)
