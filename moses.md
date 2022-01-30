@@ -15,7 +15,7 @@ Done. That's the story.
 His owners brought him to an emergency veterinary clinic and returned with a cone on his head and some painkillers. I think he would have 
 also returned with some helium balloons attached to him, due to a stressed owner worrying about the condition of his foot. It was believed 
 that using helium balloons, it would help alleviate the pressure he was applying to the burned foot. Luckily, the idea was dismissed. A few 
-days later, Moses was brought to another clinic and presribed an antibiotic ointment(?). His murdern mittens were also trimmed. Good for me, 
+days later, Moses was brought to another clinic and prescribed an antibiotic ointment(?). His murdern mittens were also trimmed. Good for me, 
 but maybe not so happy for the cat. The burn created a limping Moses, a slow Moses, and a tired Moses. Some of these effects were brought on 
 by the painkillers he was taking. It has been a few weeks now and his foot is healing well. He is no longer lethargic. He is now Moses.  
 
