@@ -1,3 +1,3 @@
-### **start reading** [:black_cat:](ruler.md)
+### **start reading** [🐈‍⬛](ruler.md)
 
 [The Ruler](ruler.md)
