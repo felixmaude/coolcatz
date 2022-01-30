@@ -1,6 +1,7 @@
 #### "Moses" W  
 
 ![A head shot of a black cat named Moses.](moses-face-shot.png)
+[Moses IRL](https://youtu.be/Nr0wZqUio90)
 
 Moses is a DSH, domestic short hair. He is also a black cat, which helps him blend into the surroundings of a dark room or a black chair.
 Because of his ability to camouflage, it makes it more fun and interesting to find him. In the instances that I have searched for him, he
