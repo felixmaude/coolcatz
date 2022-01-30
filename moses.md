@@ -1,6 +1,6 @@
 #### "Moses" W  
 
-Moses is a DHS, domestic short hair. He is also a black cat, which helps him blend into the surroundings of a dark room or a black chair.
+Moses is a DSH, domestic short hair. He is also a black cat, which helps him blend into the surroundings of a dark room or a black chair.
 Because of his ability to camouflage, it makes it more fun and interesting to find him. In the instances that I have searched for him, he
 was either sniffing to learn his environment or he notices that you are looking for him and he makes a face. _Are you looking for me?_
 
@@ -10,10 +10,10 @@ I just happened to be facetiming them when this occurred. It happened like this.
 
 Done. That's the story.  
 
-His owners brought him to an emergency veterinary clinc and returned with a cone on his head and some painkillers. I think he would have 
+His owners brought him to an emergency veterinary clinic and returned with a cone on his head and some painkillers. I think he would have 
 also returned with some helium balloons attached to him, due to a stressed owner worrying about the condition of his foot. It was believed 
 that using helium balloons, it would help alleviate the pressure he was applying to the burned foot. Luckily, the idea was dismissed. A few 
-days later, Moses was brought to another clinc and presribed an antibiotic ointment(?). His murdern mittens were also trimmed. Good for me, 
+days later, Moses was brought to another clinic and presribed an antibiotic ointment(?). His murdern mittens were also trimmed. Good for me, 
 but maybe not so happy for the cat. The burn created a limping Moses, a slow Moses, and a tired Moses. Some of these effects were brought on 
 by the painkillers he was taking. It has been a few weeks now and his foot is healing well. He is no longer lethargic. He is now Moses.  
 
