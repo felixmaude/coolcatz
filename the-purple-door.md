@@ -4,10 +4,10 @@ would hold studio spaces for the wood, plastic and metal shops, the rapid protyp
 as I can remember. With my friends, the three of us decided to explore the new wing in our free time.
 We were waiting for our next classes to start. The concete floors were still dusty from renovation. 
 The studio spaces were not completely ready for use yet. A work in progress. We walked down a hallway 
-that lead us to a purple door. Our school was decorated this way, where certain colours were set for 
+that led us to a purple door. Our school was decorated this way, where certain colours were set for 
 certain doors. It indicated where in the building you were. We walked through and took a glimpse. 
 There was nothing special. It was a stairwell after all. We turned around to leave. I tried to open
-the same door we entered. It wouldn't open. This lead to me saying no way several times. I was in 
+the same door we entered. It wouldn't open. This led to me saying no way several times. I was in 
 complete disbeleif. For a brief moment, I thought we would be stuck there forever. Maybe they felt the
 same too. We weren't. We walked up the stairs and left from another door. It was a funny, stupid
 experience.
