@@ -1,3 +1,3 @@
-### **start reading** [🐈‍⬛](ruler.md)
+### **start reading** [🐈‍⬛](stories.md)
 
-[The Ruler](ruler.md)
+[The Ruler](The-Ruler)
